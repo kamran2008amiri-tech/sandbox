@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-10 07:40 IR
+- 🗜️ [خبر_خوش_ما_🤩و_سرپرايز_ما_،_فاميل_ما_از_افغانستان🇦🇫_امد_و_چگونه_⁉️.mp4.zip.001](https://github.com/kamran2008amiri-tech/sandbox/raw/main/dl/%D8%AE%D8%A8%D8%B1_%D8%AE%D9%88%D8%B4_%D9%85%D8%A7_%F0%9F%A4%A9%D9%88_%D8%B3%D8%B1%D9%BE%D8%B1%D8%A7%D9%8A%D8%B2_%D9%85%D8%A7_%D8%8C_%D9%81%D8%A7%D9%85%D9%8A%D9%84_%D9%85%D8%A7_%D8%A7%D8%B2_%D8%A7%D9%81%D8%BA%D8%A7%D9%86%D8%B3%D8%AA%D8%A7%D9%86%F0%9F%87%A6%F0%9F%87%AB_%D8%A7%D9%85%D8%AF_%D9%88_%DA%86%DA%AF%D9%88%D9%86%D9%87_%E2%81%89%EF%B8%8F.mp4.zip.001) `89.2MB`
+
+---
+
+
 ### 📅 2026-05-10 00:01 IR
 - 🎬 [The_Art_of_NBA_Dribbling.mp4](https://github.com/kamran2008amiri-tech/sandbox/raw/main/dl/The_Art_of_NBA_Dribbling.mp4) `6.6MB`
 
